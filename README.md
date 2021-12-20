@@ -22,7 +22,7 @@ hola soy salomón
 
 Buenas tardes Soy Alfonso Monterrosas y quiero ser contribuidor
 
-
+Buenas tardes, Soy José MAnuel Cartas Sánchez de la UV Boca del Río, quiero ser contribuidor.
 
 
 
